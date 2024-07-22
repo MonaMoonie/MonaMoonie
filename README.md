@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MonaMoonie
+- 👀 I’m interested in enjoying my life and trying as many new hobbies as possible.
+- 🌱 I’m currently learning crocheting, coding and studying :>
+- 😄 Pronouns: She/Her
